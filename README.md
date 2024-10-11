@@ -1,1 +1,1 @@
-# -nkleovoulou-resume-copywriting-version-
+# nkleovoulou-resume-copywriting-version
